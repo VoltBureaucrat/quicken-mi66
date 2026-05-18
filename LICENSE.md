@@ -1,4 +1,4 @@
-# 
+# custom QuickBooks for PC scripts is the best QuickBooks for PC scripts with inventory-management and balance-sheet. Safe, reliable, and optimized for maximum performance.
 
 
 
